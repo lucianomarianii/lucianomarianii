@@ -5,7 +5,7 @@
 👋 Me chamo **Luciano Mariani**, tenho **23 anos** e sou apaixonado por **tecnologia, inteligência artificial e inovação**.  
 Atualmente, estou cursando **Técnico em Inteligência Artificial** e meu objetivo é desenvolver projetos que unam **IA, automação e criatividade** para impactar positivamente o mundo.  
 
-🔗 Me acompanhe: [TikTok](https://www.tiktok.com/lucianomarianii) | [LinkedIn](https://www.linkedin.com/in/lucianomarianiii)  
+🔗 Me acompanhe: [TikTok](https://www.tiktok.com/@lucianomarianii) | [LinkedIn](https://www.linkedin.com/in/lucianomarianiii)  
 
 ---
 
